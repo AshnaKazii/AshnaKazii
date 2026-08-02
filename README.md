@@ -6,7 +6,7 @@
 
 🎓 B.Tech Information Technology student at **Shah & Anchor Kutchhi Engineering College (SAKEC)**
 
-🎓 Diploma in Computer Engineering from **M.H. Saboo Siddik Polytechnic**
+🎓 Diploma in Computer Engineering from **M.H. Saboo Siddik Polytechnic(90.91%)**
 
 🏆 Achieved **9.73 SGPA** in Semester III & IV
 
